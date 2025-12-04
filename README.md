@@ -1,3 +1,0 @@
-# ***description du projet.***
-
-BAHAHAHAH
